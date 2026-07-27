@@ -8,7 +8,7 @@
 ## Esse individuo alega que gostou muito das aulas de back-end I do professor Patrick
 # 📝 𝕳𝖔𝖇𝖇𝖞
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆  ★
-## 📝 Este individuo alega que gosta muito de jogar videogames e futebol em suas aula vagas ★
+## 📝 Este individuo alega que gosta muito de jogar videogames e futebol em suas horas vagas ★
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆  ★
 # 📝 𝕃𝕚𝕟𝕘𝕦𝕒𝕘𝕖𝕟𝕤 𝕢𝕦𝕖 𝕧𝕒𝕞𝕠𝕤 𝕥𝕣𝕒𝕓𝕒𝕝𝕙𝕒𝕣 𝕟𝕖𝕤𝕤𝕖 𝕒𝕟𝕠
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆  ★
